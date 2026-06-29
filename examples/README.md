@@ -1,0 +1,2 @@
+**Applications & Use**\
+RC-P can be used for calculating the long-term recovery of fertiliser phosphorus application(s). The articles  mentioned as references (see under General) describe a number of applications.
